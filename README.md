@@ -14,4 +14,5 @@ More teams and equal chances in the world cups: first t20 wc should also be held
 All teams should be allowed to participate or all teams should play qualifiers instead of playing qualifying just to be the 2 weak teams of the wc . there should be random draws not putting india and pakistan and two associates in one group . Let it be competitive , this will increase viewership in small nations also gradually . 
 
 These small changes may make a big difference in the long term and maybe make cricket more popular over time . This system is a tweaked system from the one we have now . It would take convincing to change it , it should be practical. But this is just my opinion or view on it , i have given thoughts to how practical a club based system would be but creating clubs etc would take a lot of time , making international leagues , the indian players and pakistan problem has not been considered here and that's a very big problem also cricket faces . Im not telling to be open to pak players its a serious safety concern for the nation and safety always come first giving this a thought , the franchise cricket may remain as it is but all the rest of changes will help cricket definitely
--Arjun pillai 20/10/2026
+
+
